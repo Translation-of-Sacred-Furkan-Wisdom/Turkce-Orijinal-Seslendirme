@@ -1,2 +1,2 @@
 # Turkce-Orijinal-Seslendirme
-Kutsal Furkan Hikmet Kitabı'nın Türkçe Seslendirmesi --> Oku.FurkanHikmet.com üzerinden de dinleyebilirsiniz
+FURKAN'IN Türkçe Seslendirmesi --> FurkanHikmet.com üzerinden de dinleyebilirsiniz
